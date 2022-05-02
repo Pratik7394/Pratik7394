@@ -5,7 +5,7 @@
 - 📫 How to reach me: 
 <br>Email: pratik7394@gmail.com
 <br>Twitter: pratik7394
-<br>LinkedIn: pratik7394
+<br>LinkedIn: pratikpp007
 
 
 <!---
